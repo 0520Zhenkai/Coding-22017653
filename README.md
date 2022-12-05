@@ -1,5 +1,3 @@
-# Coding-22017653
-
 BLOCKED LOVE
 
 NMAE:Zhenkai Wang
